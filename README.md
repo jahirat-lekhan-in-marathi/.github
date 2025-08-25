@@ -18,4 +18,4 @@
 व्यवसाय यशस्वी करण्यासाठी जाहिरात लेखन आवश्यक आहे.  
 
 ## जाहिरात लेखन कसे करावे ?  
-
+मराठी उपयोजित लेखन अभ्यासक्रमात जाहिरात लेखन हा भाग समाविष्ट करण्यात आला आहे.  [जाहिरात लेखन कसे करावे?](https://www.marathistudy.com/2025/02/%20SSC%20Question%20Paper%202024%20Maharashtra%20Board%20PDF%20Download.html) offer subject-wise previous year papers with solutions, available for free download. Additionally, [marathi study](https://www.marathistudy.com/2025/02/%20SSC%20Question%20Paper%202024%20Maharashtra%20Board%20PDF%20Download.html) provides PDFs of English question papers, aiding students in their preparation.
